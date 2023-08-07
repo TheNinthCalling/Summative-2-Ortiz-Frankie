@@ -128,3 +128,7 @@ Create a 1 to 3-minute video summary of your project that meets the following re
 
 ---
 
+https://github.com/TheNinthCalling/Summative-2-Ortiz-Frankie/assets/98507662/ad571a75-2245-4904-a8c4-cfdf38c0eede
+
+
+
